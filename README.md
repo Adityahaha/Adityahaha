@@ -34,6 +34,6 @@ I'm open to collaboration on interesting tech projects. Reach out if you’ve go
 
 📬 **Let's Connect**    
 - 💼 LinkedIn: https://linkedin.com/in/yourname](https://www.linkedin.com/in/aditya-gupta-b7258a25b/
-- 📫 Mail: `aditya.dreams12@gmail.com`
+- 📫 Mail: aditya.dreams12@gmail.com
 
 ---
